@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pomzi
+- 👀 I’m interested in ... listening to music
+- 🌱 I’m currently learning ... github and md
+- 💞️ I’m looking to collaborate on ... mobile apps
+- 📫 How to reach me ... discord pomzy#5737
